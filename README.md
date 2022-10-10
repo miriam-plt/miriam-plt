@@ -3,7 +3,7 @@
 
 I'm Miriam (she/they)
 
-I am an interdisciplinary artist and creative technologist who uses art, design and coding to influence and shape technological culture for the better.
+I'm an interdisciplinary artist and creative technologist who uses art, design and coding to influence and shape technological culture for the better.
 
-I am always excited to make new connections, collaborate artistically or have a coffee. Don't be afraid to get in touch! [Write me](<mailto:polettimiriam@gmail.com> "mail") 💌
+I'm always excited to make new connections, collaborate artistically or have a coffee. Don't be afraid to get in touch! [Write me](<mailto:polettimiriam@gmail.com> "mail") 💌
 
